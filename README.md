@@ -1,0 +1,1 @@
+# avto-uchetka-privacy-policy
